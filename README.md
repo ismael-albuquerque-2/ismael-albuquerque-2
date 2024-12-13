@@ -1,4 +1,4 @@
-# 👋 Hello, I'm Ismael Albuquerque
+# 👋 Hello, I'm Ismael Albuquerque.
 
 ## 🇧🇷 Versão em Português
 
