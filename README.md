@@ -1,4 +1,4 @@
-# 👋 Hello, I'm Ismael Albuquerque (@ismael-albuquerque-2)
+# 👋 Hello, I'm Ismael Albuquerque
 
 ## 🇧🇷 Versão em Português
 
